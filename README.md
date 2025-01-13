@@ -1,4 +1,4 @@
-[![MasterHead]((https://preview.redd.it/ra2wz0zg56931.jpg?width=640&crop=smart&auto=webp&s=9e884b3641284b82b1a0616121e77b0a833736af))
+[![MasterHead](https://tr.pinterest.com/pin/9007268001292516/)
 <h1 align="center">Hi , I'm Sema</h1>
 <h3 align="center">Computer engineering student in Turkey</h3>
 
