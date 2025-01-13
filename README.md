@@ -1,4 +1,4 @@
-[![MasterHead](https://tr.pinterest.com/pin/9007268001292516/)
+
 <h1 align="center">Hi , I'm Sema</h1>
 <h3 align="center">Computer engineering student in Turkey</h3>
 
